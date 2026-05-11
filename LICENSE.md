@@ -1,4 +1,4 @@
-#  
+#  berry avenue rp no-ban Script is the best berry avenue rp Script, featuring auto-collect and aimbot. Safe and powerful for all your needs.
 
 
 
